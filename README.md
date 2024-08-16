@@ -2,5 +2,5 @@
 - 👀 I’m interested in ETS & ATS Mods, Bypassers for TMP!
 - 🌱 I’m currently learning C++
 - 📫 How to reach me you can contact me via discord kianscountry#0!
-- 😄 Pronouns: he/they
-- ⚡ Fun fact: furries are cool
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: idk
