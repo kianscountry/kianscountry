@@ -3,4 +3,5 @@
 - 🌱 I’m currently learning C++
 - 📫 How to reach me you can contact me via discord kianscountry#0!
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: idk
+- ⚡ Fun fact: An average truck driver for small businesses roughly drives for 2083 days
+- 💻 My Website: https://kianscountry.online
